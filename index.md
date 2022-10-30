@@ -1,4 +1,4 @@
-![Image](/_img/tourpace.jpg "Tourpace")
+![Image](./_img/tourpace.jpg "Tourpace")
 
 Bicycling, hiking, and travel... 
 
