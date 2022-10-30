@@ -12,7 +12,7 @@ This past year (2021) we replaced our mountain bikes with gravel bikes. We set-u
 
 On our way home from the bike shop with my wife's new Niner gravel bike we stopped for lunch. I happened to check the her new bike in the Kuat hitch rack after lunch (the Kuat rack holds the bike in wheel trays with both wheels on) and I found the front tubeless tire was totally flat.
 
-<img src="https://lh3.googleusercontent.com/mrUz2ozUTz8AnvXEeK8wyvHuoAicpWieGyEISWQMATmlPCP27J0y0bGkow8ELd7HdCEXyx1YZkVFaNbx5VN2G7HgwphSA1U1FOb3CDl6S_2Ux-pz6HQJNV6OtGzWTdxCYzkz1_qhr0w=w2400" width="20%">
+<img src="https://lh3.googleusercontent.com/mrUz2ozUTz8AnvXEeK8wyvHuoAicpWieGyEISWQMATmlPCP27J0y0bGkow8ELd7HdCEXyx1YZkVFaNbx5VN2G7HgwphSA1U1FOb3CDl6S_2Ux-pz6HQJNV6OtGzWTdxCYzkz1_qhr0w=w2400" width="100%">
 
 Since I didn't have an air pump with me - we moved the bike into the back of the car. If I hadn't checked on the bike, there was a good chance that her new bike would have fallen off the Kuat hitchrack. Once I got the bike home, I added a few more ounces of sealant to the front tire and re-inflated the tire. For the next week both of her tubeless tires seemed to be okay.
 
