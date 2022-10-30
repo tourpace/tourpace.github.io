@@ -1,4 +1,4 @@
-<img src="./_img/tourpace.jpg">
+<img src="https://www.tourpace.net/_img/tourpace.jpg">
 
 Bicycling, hiking, and travel... 
 
