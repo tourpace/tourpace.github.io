@@ -1,3 +1,3 @@
 Bicycling, hiking, and travel... ride, walk, and tour...
 
-- just my ramblings about my experiences and adventures.
+Just my ramblings about my experiences and adventures.
