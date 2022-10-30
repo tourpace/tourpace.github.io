@@ -1,6 +1,6 @@
 ---
 layout: post
-tag: Bikes
+tag: bikes
 ---
 
 
