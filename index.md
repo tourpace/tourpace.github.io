@@ -1,4 +1,4 @@
-![Image](./_img/tourpace.jpg "Tourpace")
+<img src="./_img/tourpace.jpg">
 
 Bicycling, hiking, and travel... 
 
