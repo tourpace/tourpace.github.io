@@ -1,6 +1,7 @@
 ---
 layout: post
-tag: bike hike places
+tag: travel
+tag: hiking
 ---
 
 <img src="https://lh3.googleusercontent.com/2y4xicaosU-ThA6uVFG2z1-MyUHxQwk37Xw8bgbcyy3Piux9BFFYENLZnDAoZOOMhj6w-2f7l7dEEcvqzP-V7MmQv1uyQQGeAiQYZzwGmwUORNaxbxV3OowsTfDjRK-L2pl6sYd8ans=w2400" width="100%">
