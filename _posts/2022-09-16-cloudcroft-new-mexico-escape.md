@@ -47,7 +47,7 @@ We took one of our cooler days to drive down to White Sands National Park. Fortu
 
 <img src="https://lh3.googleusercontent.com/36T2nPN4IKy1lpe8RJqxbxu2jga3bFE-oRmg2StZiiqIBZHLNGahNwI_0U0lCqqK4ggwXHT13DTnghg-IJmeK-DOJsahuare_t8f8lxxIDGr8Ub5Pnn02mVhPOel7RgzL3odXoCOanc=w2400" width="100%">
 
-We has a nice time walking the dunes and enjoying a cool - overcast day. It was our forth visit to White Sands and we really caught perfect weather for our visit.
+We has a nice time walking the dunes and enjoying a cool - overcast day. It was our fourth visit to White Sands and we really caught perfect weather for our visit.
 
 **We will return again...**
 It was our first time to stay in Cloudcroft and we really enjoyed this small mountain town. We were here after school was back in session and enjoyed that the weekdays were very low key. Due to the higher elevation - Cloudcroft can offer more relief from the summertime heat at almost 9,000 feet. So staying here will definitely be on our travel radar fro the future.
