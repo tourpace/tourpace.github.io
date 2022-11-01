@@ -29,7 +29,7 @@ Our second hike combined going down Toboggan Canyon Trail and then climbing back
 
 ---
 
-**Bike rides for road and mountain biking are easily accessible** We don;t ride mountain bikes anymore but found nice road and gravel rides from Cloudcroft. Just remember that you will generally go downhill leaving Cloudcroft and then back up!
+**Bike rides for road and mountain biking are easily accessible** We don't ride mountain bikes anymore but found nice road and gravel rides from Cloudcroft. Just remember that you will generally go downhill leaving Cloudcroft and then back up!
 <img src="https://lh3.googleusercontent.com/xrhR58aysUCOvglTENmW7lUlIBNq4HdC_4IoUUY1yv-nE41ONIXT2e_ktv8Kkt42p2O1-mjYlEQYE4C1eUJMM6HuuI9T6p5cmaF0PrXzHnDiPmjslgEebgEMjaiCLB4-WI-l5TepESc=w2400" width="100%">
 
 For our first ride was a 41 mile paved loop from Cloudcroft down Highway 82 to the Mayhill Country Store and then back up Rio Penasco Road to Cloudcroft. Roughly 2,500 feet downhill the first half and then a 2,500 feet climb back up.
@@ -41,7 +41,7 @@ Our second ride was a combination of pavement and gravel for 41 miles leaving Cl
 
 ---
 
-**There are planty of opportunities to take day.side trips from Cloudcroft.**
+**There are planty of opportunities to take day/side trips from Cloudcroft.**
 
 We took one of our cooler days to drive down to White Sands National Park. Fortunately our Air BNB Host offered us some sand saucers so we could partake in riding the down the sand dunes- it was a blast!
 
