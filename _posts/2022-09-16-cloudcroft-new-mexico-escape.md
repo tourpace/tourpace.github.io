@@ -14,7 +14,7 @@ Our lodging location allowed us to walk out the door to nearby hiking trail-head
 We tried and enjoyed food from Dave's Cafe *(dinner)*, LePree's Global Comfort Food *(lunch)*, Burro Street Bakery*(pie)*, Toni's Mexican Grill *(lunch*, Brother-N-Law BBQ *(lunch)*, Big Daddy's Diner *(dinner)*,Dusty Boots Cafe *(breakfast)*, and Cloudcroft Brewing Company *(dinner)*.
 
 
-**We love to visit local wineries and breweries.** [Cloudcroft Brewing Company](https://www.cloudcroftbrewing.com/) and [Noisy Water Winery](https://www.noisywaterwinery.com/) are both right in Cloudcroft. Cloudcroft Brewing Comapny also serves great  salads and excellent pizza. Just down the mountain in Alamagordo you'll find [575 Brewing Company](https://www.575brewing.co/) and [Heart of the Desert Winery](https://www.heartofthedesert.com/). On weekends 575 Brewing Company often hosts local food trucks.
+**We love to visit local wineries and breweries.** [Cloudcroft Brewing Company](https://www.cloudcroftbrewing.com/) and [Noisy Water Winery](https://www.noisywaterwinery.com/) are both right in Cloudcroft. Cloudcroft Brewing Company also serves great  salads and excellent pizza. Just down the mountain in Alamagordo you'll find [575 Brewing Company](https://www.575brewing.co/) and [Heart of the Desert Winery](https://www.heartofthedesert.com/). On weekends 575 Brewing Company often hosts local food trucks.
 
 **There are many hiking trail-heads that start right from the edge of town.** 
 
