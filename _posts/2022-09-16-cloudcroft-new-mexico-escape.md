@@ -9,7 +9,7 @@ tag: travel
 
 Our lodging location allowed us to walk out the door to nearby hiking trail-heads or hop on our bikes for a nice ride. It is also a short drive to White Sands National Park, Alamagordo, and Ruidoso.
 
-**Yes there are enough restaurants in Cloudcroft to dine at for a week or more.** We mostly ate breakfast at our Air BNB but lunch and dinners we ate out at a variety of local establishments. We just had to note that on Monday's and Tuesday's several places were closed.
+**Yes, there are enough restaurants in Cloudcroft to dine at for a week or more.** We mostly ate breakfast at our Air BNB but lunch and dinners we ate out at a variety of local establishments. We just had to note that on Monday's and Tuesday's several places were closed.
 
 We tried and enjoyed food from Dave's Cafe *(dinner)*, LePree's Global Comfort Food *(lunch)*, Burro Street Bakery*(pie)*, Toni's Mexican Grill *(lunch*, Brother-N-Law BBQ *(lunch)*, Big Daddy's Diner *(dinner)*,Dusty Boots Cafe *(breakfast)*, and Cloudcroft Brewing Company *(dinner)*.
 
