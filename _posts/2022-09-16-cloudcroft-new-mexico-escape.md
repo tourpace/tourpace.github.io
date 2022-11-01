@@ -5,7 +5,7 @@ tag: travel
 
 <img src="https://lh3.googleusercontent.com/2y4xicaosU-ThA6uVFG2z1-MyUHxQwk37Xw8bgbcyy3Piux9BFFYENLZnDAoZOOMhj6w-2f7l7dEEcvqzP-V7MmQv1uyQQGeAiQYZzwGmwUORNaxbxV3OowsTfDjRK-L2pl6sYd8ans=w2400" width="100%">
 
-**Cloudcroft, New Mexico a great place to spend a week.** We have made several day trips to Cloudcroft, New Mexico in the past five years. This year we thought we would try staying for a week in Cloudcroft. Cloudcroft sits at 8,676 feet atop the Sacramento Mountains in the Lincoln National Forest. We found a nice [Air BNB efficiency](https://www.airbnb.com/rooms/614419709067235463) right in town that allowed us to walk to restaurants and shops in Cloudcroft.
+**Cloudcroft, New Mexico is a great place to spend a week.** We have made several day trips to Cloudcroft, New Mexico in the past five years. This year we thought we would try staying for a week in Cloudcroft. Cloudcroft sits at 8,676 feet atop the Sacramento Mountains in the Lincoln National Forest. We found a nice [Air BNB efficiency](https://www.airbnb.com/rooms/614419709067235463) right in town that allowed us to walk to restaurants and shops in Cloudcroft.
 
 Our lodging location allowed us to walk out the door to nearby hiking trail-heads or hop on our bikes for a nice ride. It is also a short drive to White Sands National Park, Alamagordo, and Ruidoso.
 
