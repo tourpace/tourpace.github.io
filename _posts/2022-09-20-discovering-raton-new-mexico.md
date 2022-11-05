@@ -33,7 +33,7 @@ Our final hike destination was the beautiful Capulin Volcano National Monument. 
 
 <img src="https://lh3.googleusercontent.com/fBcmuh3isTibUwEa1bxKQbQCnq-3VKhl4e-KXUjw4vXkIuD234rLZ1HBqh0bZfZqST6nM55KlzTG_20PniVqKzG8VPlhh6JMwgd1okqe6GQWUr118mgbYbMEhkQFEeQBHugFuHKx3N0=w2400" width="100%"> 
 
-**Our second day in Raton was perfect for bike riding to Johnson Mesa.** Our route was from our AirBNB and out New Mexico State Highway 72 to the top of the mesa and back. Just over 2,500 feet of climbing to get up on to the Mesa. Our goal was to ride to the historic Johnson Mesa Church that we had passed by the day before we we drove to Capulin Volcano.
+**Our second day in Raton was perfect for bike riding to Johnson Mesa.** Our route was from our AirBNB and out New Mexico State Highway 72 to the top of the mesa and back. Just over 2,500 feet of climbing to get up on to the Mesa. Our goal was to ride to the historic Johnson Mesa Church that we had passed by the day before when we drove to Capulin Volcano.
 
 <img src="https://lh3.googleusercontent.com/svitAGMGIUdLhBgMxYFwDT0N3XpG0o5XAtVUb0-JMFNa-fDDSDDr7at1kJwQF-3Ox6QMBKm0e6FIUqoAVs4XiDJXBQNIoZeFYsULLhb10YaRVkpCvpo3A9pxuKuW_QUnWkz4iLF1KEA=w2400" width="100%">
 
