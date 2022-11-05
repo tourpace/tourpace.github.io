@@ -33,7 +33,7 @@ We were told that sea turtles brazed on these grass beds and eventually we found
 
 We snorkeled on our own and there is really only one place to see a reef with fish. Just walk as far away from everybody on the beach heading north and you will come to the end of the beach. No crowds here and you'll see the reef and rocks just out from shore. We snorkeled out to the first set of rocks and reef - any further out and the currents get stronger and can be dangerous.
 
-[![Snorkeling Little San Salvador Island](http://img.youtube.com/vi/tdvDd3oumwo/0.jpg)](http://www.youtube.com/watch?v=tdvDd3oumwo "Snorkeling")
+[![Snorkeling Little San Salvador Island](http://img.youtube.com/vi/tdvDd3oumwo/0.jpg)](http://www.youtube.com/watch?v=tdvDd3oumwo "Snorkeling Little San Salvador Island")
 
 **Stop #4 - Nassau, Bahamas.** We really didn't have much idea of what we wanted to do in Nassau - so we winged it and went for a long walk.
 
