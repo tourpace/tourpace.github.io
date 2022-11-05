@@ -1,6 +1,6 @@
 ---
 layout: post
-tag: cruises
+tag: Cruises
 ---
 
 <img src="https://lh3.googleusercontent.com/--RBLYR5z_7ISIXVxqOFzr2dPulL5S6aRCcfRDIki8Os7POx57Y6LW-LKc1yC620OQKgpFAt1XFSxBYv2wcbyNgVXC-RNL1IUqRxw7hCPWInZHWJKkCLGm-indcOKb2dbvnon74-4Oc=w2400" width="100%">
