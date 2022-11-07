@@ -23,7 +23,9 @@ I think of Key West like a big suburb that was placed on a small island. Throw i
 
 Upon arriving, they made sure to provide a quick snorkeling orientation. We had reserved two chairs and one umbrella to have a place to keep our stuff. This is not a public beach - so we did not need a locker. The snorkeling area consists of three zones (nearest to farthest from shore) and we explored the first two zones over coral reefs and sea grass. Even though it was shallow enough to stand up, you couldn't as you would harm the coral beds and sea grass.
 
-[![Snorkeling Paradise Cove Beach Resort](http://img.youtube.com/vi/wcLDtXkqIlQ/0.jpg)](http://www.youtube.com/watch?v=wcLDtXkqIlQ "Snorkeling Paradise Cove Beach Resort")
+| [![Snorkeling Paradise Cove Beach Resort](http://img.youtube.com/vi/wcLDtXkqIlQ/0.jpg)](http://www.youtube.com/watch?v=wcLDtXkqIlQ "Snorkeling Paradise Cove Beach Resort") |
+|:--:|
+| *Click the image above to play the video* |
 
 We were told that sea turtles brazed on these grass beds and eventually we found one!
 
@@ -33,7 +35,9 @@ We were told that sea turtles brazed on these grass beds and eventually we found
 
 We snorkeled on our own and there is really only one place to see a reef with fish. Just walk as far away from everybody on the beach heading north and you will come to the end of the beach. No crowds here and you'll see the reef and rocks just out from shore. We snorkeled out to the first set of rocks and reef - any further out and the currents get stronger and can be dangerous.
 
-[![Snorkeling Little San Salvador Island](http://img.youtube.com/vi/tdvDd3oumwo/0.jpg)](http://www.youtube.com/watch?v=tdvDd3oumwo "Snorkeling Little San Salvador Island")
+| [![Snorkeling Little San Salvador Island](http://img.youtube.com/vi/tdvDd3oumwo/0.jpg)](http://www.youtube.com/watch?v=tdvDd3oumwo "Snorkeling Little San Salvador Island")| 
+|:--:|
+| *Click the image above to play the video* |
 
 **Stop #4 - Nassau, Bahamas.** We really didn't have much idea of what we wanted to do in Nassau - so we winged it and went for a long walk.
 
