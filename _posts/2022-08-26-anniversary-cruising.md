@@ -25,9 +25,9 @@ I was fortunate to see an Eagle Ray swimming during the start of my snorkeling s
 
 [![Snorkeling West Bay Roatan Fish School](http://img.youtube.com/vi/6eH7zMuDo08/0.jpg)](http://www.youtube.com/watch?v=6eH7zMuDo08 "Snorkeling West Bay Roatan Fish School")
 
-<img src="https://lh3.googleusercontent.com/bRb16zQckp9cRLA8GtvrlW8Z_0QseGdiD7D34u0Xzh0evHMU8PR15nuwxgGYKh4XE0uYGFWgTfSlLrry38iTmIaUNtmXQbh2hq_oDIP9thSW0mnDRmZEEMbJnJvsjFO6il2MiqBmvaQ=w2400" width="100%">
-
 Our driver/guide recommended lunch at a restaurant with a view of the Coxen Hole cruise port. On our way to lunch we made a obligatory stop at the Roatan sign and then on to lunch. We shared street tacos and accompanied it with the local Salva Vida beer.
+
+<img src="https://lh3.googleusercontent.com/bRb16zQckp9cRLA8GtvrlW8Z_0QseGdiD7D34u0Xzh0evHMU8PR15nuwxgGYKh4XE0uYGFWgTfSlLrry38iTmIaUNtmXQbh2hq_oDIP9thSW0mnDRmZEEMbJnJvsjFO6il2MiqBmvaQ=w2400" width="100%">
 
 <img src="https://lh3.googleusercontent.com/G5KibwaaXTqrbVU8uHSMVGw3YFt0Tji8LKVZGzsndipMfk01K0pW4HpA_YciMOca3aza1YdVJ-RrKhyKUAD-yHm2sbYe02Ex9j_nKSAMDKG95FP6rOGh3EXWvb5zNONcu9yGzQwikGc=w2400" width="100%">
 
