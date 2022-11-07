@@ -19,11 +19,15 @@ We had several options for possible stops on our way to and from West Beach for 
 
 Our driver/guide took us to the Bananarama Dive and Beach Resort area where we met our boat driver/snorkeling guide. A very short boat ride took us to a nearby reef that had plenty of fish.
 
-[![Snorkeling West Bay Roatan](http://img.youtube.com/vi/C0ebZI6xNlI/0.jpg)](http://www.youtube.com/watch?v=C0ebZI6xNlI "Snorkeling West Bay Roatan")
+| [![Snorkeling West Bay Roatan](http://img.youtube.com/vi/C0ebZI6xNlI/0.jpg)](http://www.youtube.com/watch?v=C0ebZI6xNlI "Snorkeling West Bay Roatan") |
+|:--:|
+| *Click the image above to play the video* |
 
 I was fortunate to see an Eagle Ray swimming during the start of my snorkeling swim. Later I ended up swimming in a school of fish that was quite interesting. The weather was perfect - no wind or waves, so the snorkeling was really relaxing and fun.
 
-[![Snorkeling West Bay Roatan Fish School](http://img.youtube.com/vi/6eH7zMuDo08/0.jpg)](http://www.youtube.com/watch?v=6eH7zMuDo08 "Snorkeling West Bay Roatan Fish School")
+| [![Snorkeling West Bay Roatan Fish School](http://img.youtube.com/vi/6eH7zMuDo08/0.jpg)](http://www.youtube.com/watch?v=6eH7zMuDo08 "Snorkeling West Bay Roatan Fish School") |
+|:--:|
+| *Click the image above to play the video* |
 
 Our driver/guide recommended lunch at a restaurant with a view of the Coxen Hole cruise port. On our way to lunch we made a obligatory stop at the Roatan sign and then on to lunch. We shared street tacos and accompanied it with the local Salva Vida beer.
 
