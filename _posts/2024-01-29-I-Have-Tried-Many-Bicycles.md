@@ -1,5 +1,5 @@
 ---
-tags: bicycles
+tags: Bicycles
 ---
 
 Over the past 45 years I have owned many types of bicycles. It is not that I collect bicycles, but I have always enjoyed trying something new and different.
