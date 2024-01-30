@@ -6,7 +6,7 @@ My list of past and present bicycles:
 
 - [Schwinn Continental](https://bikehistory.org/bikes/continental/#1973-continental) (steel)
 - Univega Viva Sport (steel)
-- Schwinn Super Sport (steel)
+- [Schwinn Super Sport](https://bikehistory.org/bikes/sport/#1984-sport) (steel)
 - Basso (steel)
 - Schwinn High Sierra (steel)
 - Specialized Epic Allez (carbon)
