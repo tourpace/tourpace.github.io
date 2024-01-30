@@ -4,7 +4,7 @@ From my trusty Schwinn Continental to a classic steel Italian Basso and even a c
 
 My list of past and present bicycles:
 
-- Schwinn Continental (steel)
+- [Schwinn Continental](https://bikehistory.org/bikes/continental/#1973-continental) (steel)
 - Univega Viva Sport (steel)
 - Schwinn Super Sport (steel)
 - Basso (steel)
