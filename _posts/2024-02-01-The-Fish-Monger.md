@@ -17,24 +17,24 @@ Soma Fabrications (Merry Sales) offers the [Pescadero frameset](https://www.soma
 
 **My build:**
 
--bottom bracket, Shimano sealed square taper
--crankset, Sugino 5 bolt with 170mm arms
--pedals, Crank Brothers Candy 2
--chaninring, generic narrow-wide 40 tooth alloy
--chain, SRAM 9 speed with Powerlink
--rear derailleur, Microshift Advent 9 speed
--rear cassette, Microshift Advent 11-42
--shifter, Microshift Advent bar-end
--seatpost, Paul Components Tall and Handsome
--saddle, Fabric Radius
--headset, Ritchey Logic sealed
--stem, Paul Components Boxcar
--handlebars - FSA Compact
--brakes, Tektro R559 long reach sidepull
--brake levers, Tektro RL340 Aero
--cables/housing, JagWire
--wheels, H PLUS Son TB14 rims / DT swiss spokes / Shimano 105 hubs / Shimano QR levers
--tires, Panaracer Pasela 700x38
+- bottom bracket, Shimano sealed square taper
+- crankset, Sugino 5 bolt with 170mm arms
+- pedals, Crank Brothers Candy 2
+- chaninring, generic narrow-wide 40 tooth alloy
+- chain, SRAM 9 speed with Powerlink
+- rear derailleur, Microshift Advent 9 speed
+- rear cassette, Microshift Advent 11-42
+- shifter, Microshift Advent bar-end
+- seatpost, Paul Components Tall and Handsome
+- saddle, Fabric Radius
+- headset, Ritchey Logic sealed
+- stem, Paul Components Boxcar
+- handlebars - FSA Compact
+- brakes, Tektro R559 long reach sidepull
+- brake levers, Tektro RL340 Aero
+- cables/housing, JagWire
+- wheels, H PLUS Son TB14 rims / DT swiss spokes / Shimano 105 hubs / Shimano QR levers
+- tires, Panaracer Pasela 700x38
 
 My riding style is more relaxed and I prefer a 1x drivetrain. The Microshift Advent components allow me to have a very wide range with a high gear of 99.3 gear inches and a low gear of 26 gear inches. I also dislike brifters like Shimano STI, SRAM Double-Tap, and the compexity of electronic shifting. Bar end shifting is simple, quick, reliable, and I can always tell what gear I am in by the visual position of the lever.
 
