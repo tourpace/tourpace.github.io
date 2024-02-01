@@ -1,1 +1,1 @@
-![alt text](./pics/fm.jpg)
+![alt text](pics/fm.jpg)
