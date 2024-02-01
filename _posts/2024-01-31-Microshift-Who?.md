@@ -1,4 +1,4 @@
-It is often said in the bike industry that there are only three (3) major component manufactruers: Shimano, SRAM, and Campagnolo. But many years ago I couldn't get my hands on any Shimano bar-end shifters (other than eBay) and I found that a company callled Microshift that made bar-end shifters that would work with Shimano rear derailleurs up to 9 speeds. The Microshift bard-ends weren't quite the same as my previous Shimano's - they got the job done.
+It is often said in the bike industry that there are only three (3) major component manufactruers: Shimano, SRAM, and Campagnolo. But many years ago I couldn't get my hands on any Shimano bar-end shifters (other than eBay) and I found that a company callled Microshift that made bar-end shifters that would work with Shimano rear derailleurs up to 9 speeds. The Microshift bar-ends weren't quite the same as my previous Shimano's - but they got the job done.
 
 My major beef with Shimano and SRAM is that they have almost abandoned bar-end shifters - I believe that SRAM still has some mechanical bar-ends for the tri-bike scene. But it appears that SRAM plans to pahse out with electronic versions.
 
