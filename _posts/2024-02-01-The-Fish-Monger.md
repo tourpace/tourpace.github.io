@@ -38,6 +38,6 @@ Soma Fabrications (Merry Sales) offers the [Pescadero frameset](https://www.soma
 
 My riding style is more relaxed and I prefer a 1x drivetrain. The Microshift Advent components allow me to have a very wide range with a high gear of 99.3 gear inches and a low gear of 26 gear inches. I also dislike brifters like Shimano STI, SRAM Double-Tap, and the compexity of electronic shifting. Bar end shifting is simple, quick, reliable, and I can always tell what gear I am in by the visual position of the lever.
 
-I hane named this bicycle **FM** for Fish Monger - a possible translation for Pescadero.
+I have named this bicycle **FM** for Fish Monger - a possible translation for Pescadero.
 
 ![FM the Pescadero](/../pics/fm.jpg)
