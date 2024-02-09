@@ -2,7 +2,7 @@
 tags: Bicycles
 ---
 
-Over the past 50 years I have owned and ridden many types of bicycles. It is not that I collect bicycles, but I have always enjoyed trying something new and different.
+Over the past 50 years I have owned and ridden many types of bicycles. It is not that I collect bicycles, but I have always enjoyed trying something new and different. I am not a professional blogger who gets bikes, frames, and parts sent to me for reviews. Everything listed below was purchased with my own money and yes it is my vice, so to say.
 
 From my trusty Schwinn Continental to a classic steel Italian Basso and even a carbon Pinarello race bike...
 Many were purchased as complete bikes from the local bike shop, many were frame only purchases that I built-up, and some were used purchases from other bicyclists.
