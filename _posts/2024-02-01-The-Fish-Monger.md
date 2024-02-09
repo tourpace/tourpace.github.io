@@ -19,7 +19,7 @@ There are still some options in the bicycle industry for a new frame that can me
 - Across the pond in the UK is Condor with the [Heritage frameset](https://www.condorcycles.com/products/condor-heritage-frameset?variant=37794547269782)
 - [Crust Bikes](https://crustbikes.com/collections/frames) offers the following framesets -  Malocchio, Lightening Bolt Canti, Romanceur, and Nor'easter - all of these frames use 1" threaded forks/headsets.
 - C&L Cycles in Montreal has the very nice cross inspired [Bassi Montreal](https://www.clcycle.ca/en/bassi-montreal-v3.html)
-- Handsome Cycles has the [Devil] (https://handsomecycles.com/products/handsome-devil-chromoly-frameset-shaving-cream), a very nice looking all-rounder.
+- Handsome Cycles has the [Devil](https://handsomecycles.com/products/handsome-devil-chromoly-frameset-shaving-cream), a very nice looking all-rounder.
 - [Rivendell](https://www.rivbike.com/collections/current-models) has many nice steel framesets  including the Sam Hillborne and A. Homer Hilsen. You have to act quickly to buy a Rivendell as they often sell-out quickly.
 - Surly used to offer the Cross-Check in a rim brake version, [but alas it has been retired](https://velo.outsideonline.com/gravel/gravel-culture/surly-cross-check-discontinued/).
 - Soma Fabrications (Merry Sales) offers the [New Albion Privateer](https://www.somafabshop.com/shop/new-albion-frame-privateer-colonial-blue-5316?category=836&search=New+#attr=2976) and the [Pescadero](https://www.somafab.com/archives/product/pescadero-frame-set)
