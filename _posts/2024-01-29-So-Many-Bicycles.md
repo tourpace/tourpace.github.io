@@ -18,6 +18,7 @@ List of my past and present bicycles:
 - Haro V2 MTB (used complete bike-aluminum)
 - Specialized StumpJumper Pro (new complete bike-aluminum)
 - Cannondale Rush 4 (new complete bike-aluminum)
+- Cove Handjub (new frame-steel)
 - Surly 1x1 (used frame-steel)
 - DeKerf Solitaire (used frame-steel)
 - Surly Karate Monkey (used frame-steel)
@@ -37,7 +38,7 @@ List of my past and present bicycles:
 - Salsa Fargo (new complete bike-steel)
 - Black Mountain Cycles Monstercross V4 (new frame-steel)
 - Jeff Jones SWB (new complete bike-steel)
-- Kona Sutra (used complete bike-steel)
+- Kona Sutra LTD (used complete bike-steel)
 - Salsa Stormchaser (new frame-aluminum)
 - Bike Friday Tandem Twosday (used complete bike-steel)
 - Co-Motion Speedster Tandem (used complete bike-steel)
@@ -46,5 +47,5 @@ List of my past and present bicycles:
 - Pinarello GAN (new complete bike-carbon)
 - Soma Pescadero (new frame-steel)
 
-  The only bikes I still have are the Soma Pescadero and the Gepida Thoris tandem.
+  The only bikes I still have and ride are the Soma Pescadero and the Gepida Thoris tandem.
 
