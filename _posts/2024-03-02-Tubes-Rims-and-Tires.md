@@ -18,7 +18,7 @@ Evidently car and motorcycle rims are hookless - so shouldn't bicycle rims too? 
 
 For a closing thought - watch this video of a tubeless setup on hookless rims, now that seems safe...
 
-<iframe width="auto" src="https://www.youtube.com/embed/BmxylplJJWQ?si=vouC5kMURQtCy9nh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="100%" src="https://www.youtube.com/embed/BmxylplJJWQ?si=vouC5kMURQtCy9nh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
 
