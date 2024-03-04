@@ -2,7 +2,7 @@
 tag: Parts
 ---
 
-Tubes or tubeless? Hooked rims or hookless? Tubed tire or tubeless?
+**Tubes or tubeless? Hooked rims or hookless? Tubed tire or tubeless?**
 
 So many questions these days and I'm not sure why on most bikes. I prefer simplicty and my choice has for the most part been tubes in a tubed tire on a hooked rim. The only exception I have made was when I mountain biked in the southwest US and then I used a tubeless setup on hooked rims because on so many thorns from cactus.
 
@@ -15,7 +15,7 @@ Now I am reading [Gear Junkie for example](https://gearjunkie.com/biking/hookles
 ![Hooked vs. Hookless Rim from Gear Junkie](https://s3.amazonaws.com/images.gearjunkie.com/uploads/2022/09/Enve-hookless-journal-2-5-1.jpg)
 (Notice how much more aerodynamic the hookless rims are above - image from Gear Junkie)
 
-Evidently car and motorcycle rims are hookless - so shouldn't bicycle rims too? Evidently you can make that carbon fiber rim stronger, lighter, and cheaper - who does'nt want that??? Well - not me.
+Evidently car and motorcycle rims are hookless - so shouldn't bicycle rims too? Evidently you can make that carbon fiber rim stronger, lighter, and cheaper - who doesn't want that??? Well - not me.
 
 For a closing thought - watch this video of a tubeless setup on hookless rims with the recommended tires, now that seems safe...
 
