@@ -1,4 +1,6 @@
-
+---
+tag: Parts
+---
 
 I'll make no excuses for liking the simplicity of square taper cranksets. My favorite frames have threaded bottom bracket shells and as such will accept square taper sealed bottom brackets. So when I built up a Soma Pescadero frameset I chose a Shimano sealed square taper bottom bracket. I like that I can choose the length of the bottom bracket spindle to further adjust the chainline of a chosen crankset.
 
