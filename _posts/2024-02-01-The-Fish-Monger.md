@@ -24,7 +24,7 @@ There are still some options in the bicycle industry for a new frame that can me
 - Surly used to offer the Cross-Check in a rim brake version, [but alas it has been retired](https://velo.outsideonline.com/gravel/gravel-culture/surly-cross-check-discontinued/).
 - Soma Fabrications (Merry Sales) offers the [New Albion Privateer](https://www.somafabshop.com/shop/new-albion-frame-privateer-colonial-blue-5316?category=836&search=New+#attr=2976) and the [Pescadero](https://www.somafab.com/archives/product/pescadero-frame-set)
 
-The Soma Pescadero was on-sale and it ticked all my boxes for my perfect frameset. My build would be components that I either already had and the addition of new parts that are very easy to service while being reliable.
+The Soma Pescadero was on-sale and it ticked all my boxes for my new frameset. My build would be components that I either already had and the addition of new parts that are very easy to service while being reliable.
 
 **My build:**
 
