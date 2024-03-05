@@ -29,8 +29,10 @@ Tubeless tires moved from the mountain bike world into gravel and road bicycling
 - Sealant must be maintained
 
 Traditional tubed tires (clinchers) have been around since the very late 1800's  - invented and patented in 1892 by [Thomas B. Jeffrey](https://en.wikipedia.org/wiki/Thomas_B._Jeffery).
+
 ![Thomas B. Jeffrey](https://upload.wikimedia.org/wikipedia/commons/f/fd/Thomasbjeffery.gif)
-Thomas B. Jeffrey - Inventor of the clincher tire.
+
+*Thomas B. Jeffrey - Inventor of the clincher tire.*
 
 Tubed (clincher) tires only require an appropriate sized inner tube and corresponding clincher wheel/rim. There is a short leaning curve to properly change a flat tube/tire and the process is very simple. Many people still visit the local bike shop to have a flat fixed but more seasoned bicyclists learn to change their own flats. The most important thing to remember when changing a flat tire is to find what caused the flat in the first place. Clincher tires and tubes are still very popular and are a very proven and reliable technology.
 
@@ -50,14 +52,14 @@ Tubed (clincher) tires only require an appropriate sized inner tube and correspo
 
 If you choose tubed (clincher) tires than your only choice for rims are hooked (clincher) rims. Tubeless tires can also be run on hooked (clincher) style rims. 
 
-Pros of hooked rims:
+**Pros of hooked rims:**
 - works with tubed or tubeless tires
 - proven rim technology
 - been around for over 100 years
 - wider variety of rim choices
 - works well with a variety of tire pressures
 
-Cons of hooked rims:
+**Cons of hooked rims:**
 - heavier than hookless rims
 - not quite as aerodynamic where the tire interfaces
 - not the current trend
@@ -90,7 +92,7 @@ I prefer simplicty and my choice has for the most part been tubes in a tubed tir
 
 On road and gravel I run tubes and I have had very few flats. If I do - I just find the cause of the flat, remove the cause, and insert a new tube... off and running is just a few minutes. No mess, no adding sealant, and no difficulty in mounitng a specific tire to a specific rim. I do run wider tires on my bikes - the narrowest tire that I run is on my road bike is 700 x 38's, inflated to a modest 40 psi. For gravel I run the pressure at 35 psi and no pinch flats.
 
- Tubes most often can be patched and re-used - so Yes to Tubes for me!
+ Tubes most often can be patched and re-used - so **Yes to Tubes** for me!
 
 
 
